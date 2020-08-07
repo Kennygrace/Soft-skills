@@ -2,7 +2,7 @@
 
     What Are Soft Skills?
 
-Soft Skills as defined by Oxfird Dictionary means personal attributes that enable someone to interact effectively and harmoniously with other people.
+Soft Skills as defined by Oxford Dictionary means personal attributes that enable someone to interact effectively and harmoniously with other people.
 
 As defined by Wikipedia; Soft skills are a combination of people skills, social skills, communication skills, character or personality traits, attitudes, career attributes, social intelligence and emotional intelligence quotients, among others , that enable people to navigate their environment, work well with others, and achieve their goals with complementing hard skills.
 
